@@ -2,4 +2,4 @@
 baithe baithe kya kare karna hai kuch kaam
 shuru karein antakshri lekar prabhu ka naam
 
-Goodluck with your coding career!!
+Good luck with your coding career!!
